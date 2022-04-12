@@ -5,3 +5,7 @@ I started off professionally as a commercail pilot working as a flight instructo
 The flight schools I taught at were mostly international flight schools,
 so I worked with people from all over the world.  Today I am a stay at home mom,
 which I have been for the last 10 years.  
+
+https://www.facebook.com/laurenlcoyle/
+
+https://twitter.com/coyle_lauren
