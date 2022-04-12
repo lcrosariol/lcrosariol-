@@ -10,4 +10,4 @@ https://www.facebook.com/laurenlcoyle/
 
 https://twitter.com/coyle_lauren
 
-https://www.linkedin.com/in/lauren-crosariol-a00b21231/
+https://www.linkedin.com/in/laurencrosariol/
