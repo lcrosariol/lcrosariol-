@@ -9,3 +9,5 @@ which I have been for the last 10 years.
 https://www.facebook.com/laurenlcoyle/
 
 https://twitter.com/coyle_lauren
+
+https://www.linkedin.com/in/lauren-crosariol-a00b21231/
